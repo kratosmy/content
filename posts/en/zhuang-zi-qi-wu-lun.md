@@ -1,0 +1,14 @@
+---
+title: "Online Beings"
+title-en: "Online Beings"
+date: "2024-06-23"
+tags: ["life"]
+---
+
+> Great wisdom is broad and unhurried, small wisdom is cramped and busy. Great words are flaming and scorching; small words are shrill and quarrelsome. In sleep their spirits become entangled, in waking their bodies hustle. With everything they meet they become entangled. Day after day they use their minds in strife, sometimes grandiose, sometimes sly, sometimes petty. Their little fears are mean and trembly; their great fears are stunned and overwhelming. They bound off like an arrow or crossbow pellet, certain that they are the arbiters of right and wrong. They cling to their position as though they had sworn before the gods, sure that they are holding on to victory. They fade like fall and winter - such is the way they dwindle day by day. They drown in what they do - you cannot make them turn back. They grow dark, as though sealed with seals - such are the excesses of their old age. And when their minds draw near to death, nothing can restore them to the light.
+
+**Translation:**
+
+> People of great wisdom are broad and composed, while those of small wisdom are narrow and restless; those who speak grandly are imposing and overbearing, while those who speak specifically argue endlessly. When they sleep, their souls are restless, and when they wake, their bodies are weary and scattered. They spend all day entangled with the outside world, scheming day after day. Some are careless and unfocused, some hide their cunning, some are cautious and meticulous. When slightly afraid, they are anxious and uneasy; when greatly terrified, they lose their souls. Sometimes they speak like released arrows, spying on others' rights and wrongs to attack; sometimes they remain silent as if bound by oath, merely waiting for the chance to win; they are declining like the desolation of autumn and winter, meaning they are moving toward extinction day by day; they are immersed in the act of debate and cannot be restored to their original nature; their hearts are blocked as if bound by ropes, indicating they are like abandoned ditches whose source water has dried up; hearts approaching death can no longer be revived. They are sometimes joyful, sometimes angry, sometimes sad, sometimes happy; sometimes worried, sometimes sighing, sometimes regretful, sometimes fearful; some are frivolous, some indulgent, some arrogant, some affected; like music emerging from emptiness, or like fungi steamed up by earth's vapor. These various emotions and states change day and night, appearing alternately from time to time, but no one knows where they originate. Forget it, forget it! Once we know where these states come from, we understand the root cause of why these states arise!
+
+The above is excerpted from **_Zhuangzi·Inner Chapters·On the Equality of Things_**. In my humble opinion, the myriad forms of online beings are nothing more than this.
