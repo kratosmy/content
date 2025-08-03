@@ -5,7 +5,7 @@ date: "2023-07-21"
 summary: "A Fast Intro to Git Internals"
 draft: false
 author: "kratos"
-tags: ["Basic Computer Science"]
+tags: ["cs"]
 ---
 
 ## Basic Concepts
